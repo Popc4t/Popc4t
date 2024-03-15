@@ -1,0 +1,6 @@
+- Hi, I’m @Popc4t
+- Coding as a hobby rn
+- I’m interested in C++ and Arduino
+- I’m currently learning C++
+- Amateur programmer
+- Pronouns: food/foods
